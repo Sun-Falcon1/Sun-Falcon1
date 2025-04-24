@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sun-Falcon1
-- 🌱 pursuying undergrads at North South University in Elecxtrical And Computer Engineering.
+- 🌱 pursuying undergrads at North South University in Electrical And Computer Engineering.
 - 👀 I’m interested in Robotics and automobiles.
 - 👀Also as a tech enthusiast , has a variety of interests in gadgets.
 - 🌱 I’m currently learning programming languages
