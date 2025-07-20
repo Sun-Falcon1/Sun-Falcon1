@@ -10,7 +10,7 @@
 - ⚡ Fun fact: None. But i am cute hehehe.
 - 🍔 Foods: Coffeebean, Chocolates, Cookies, Chimken meat, Muffins, HamBorgor, sandwich . Although , now im eating engines and computers.
 - 🐻 Animol: Polar Bear, Doggo, Turtol, Fishes, Duckie, Hammie, Shark, Dollie.
-- 🏎️ Sports: Debating, F1(Racing), Chess, Badminton, Basketball.
+- 🏎️ Sports: Debating, F1(Racing), Chess, Badminton, Soccer, Basketball.
 - 🎵 Muse: Harmonium, Piano, Guitar, Violin .
 
 <!---
