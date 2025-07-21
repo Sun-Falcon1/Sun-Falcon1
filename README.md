@@ -2,7 +2,7 @@
 - 🌱 pursuying undergrads at North South University in dept. of Electrical And Computer Engineering.
 - 👀 I’m interested in Robotics and automobiles.
 - 👀Also as a tech enthusiast , has a variety of interests in gadgets.
-- 🌱 I’m currently learning programming languages. Im loving java rn 🍵! 
+- 🌱 I’m currently learning programming languages. Im loving java rn ☕! 
 - 💞️ I’m looking to collaborate on robotics projects or CP contests.
 - 📫 How to reach me : mail:nehamoni180@gmail.com
 - 😄 Pronouns: she/her
