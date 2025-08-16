@@ -8,7 +8,7 @@
 - 😄 Pronouns: she/her
 - 🍦Retrospc: Sufism. Strong Beliver of ISLAM. Proud Muslim. 
 - ⚡ Fun fact: None. But i am cute hehehe.
-- 🍔 Foods: Coffeebean, Chocolates, Cookies, Chimken meat, Muffins, HamBorgor, sandwich . Although , now im eating engines and computers.
+- 🍔 Foods: Coffeebean, Chocolates, Cookies, Chimken meat, Muffins, HamBorgor, sandwich, bluebarry cheesecake . Although , now im eating engines and computers.
 - 🐻 Animol: Polar Bear, Doggo, Turtol, Fishes, Duckie, Hammie, Shark, Dollie.
 - 🏎️ Sports: Debating, F1(Racing), Chess, Badminton, Soccer, Basketball.
 - 🎵 Muse: Harmonium, Piano, Guitar, Violin .
